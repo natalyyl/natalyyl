@@ -11,4 +11,4 @@
 
 **OBS:** todos os projetos aqui são para aprimoração e estudos **podem conter erros**, obrigada pela compreenção 😊
 
-![](https://tenor.com/pt-BR/view/happy-party-jump-plants-pflanzen-gif-18284924)
+<________________________________________________🤎_____________________________________________________>
